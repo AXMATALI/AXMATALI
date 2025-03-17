@@ -1,3 +1,5 @@
+
+
 # 👋 Hey, I'm Axmat Ali (aka Master AZMAT JEDI X126)  
 
 🚀 Tech Entrepreneur | Ethical Hacker | Penetration Tester  
@@ -21,7 +23,9 @@ I'm the CEO of Inferna Tech, leading the way in WordPress development, cybersecu
 - Cybersecurity Audits & Pentesting  
 - Automation, Growth Hacking & AI Tools  
 
-## 🔥 Let's Connect on Telegram  
-📩 Telegram: [@YourTelegramUsername](#)  
+## 🔥 Let's Connect  
+📩 Telegram: [@Jedix126](#)  
+📷 Instagram: [@money_hack_1s_back_2025](#)  
 
 ⚡ "Hack the system, secure the future, scale the business!"  
+
